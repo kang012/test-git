@@ -1,2 +1,2 @@
-#Rush B
+#rushB
 Cyka blayt
