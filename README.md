@@ -1,2 +1,2 @@
 #rushB
-Cyka blayt
+Cyka blayt !!
